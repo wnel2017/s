@@ -3,8 +3,8 @@
 <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/shan.jpg"/></td><br/>
   <tr>
    <td align=center>
-   致我们心中的善<br/>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c817056&from=wnel">◆◆◆请点击在线观看◆◆◆</a><br/>
+   ❤❤致我们心中的善❤❤<br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c817056&from=wnel">请点击在线观看</a><br/>
 </tr>
   <tr>
      <td align=left>
@@ -15,8 +15,9 @@
 ◆善，赐予了我们。不动如山，正因内心柔软。惜人如己，乃善性使然<br/>
 ◆致我们心中的善<br/>
 ◆请制止尘世间所有黑暗与罪恶<br/>
+◆请帮助制止中共活摘器官
 ◆让人性回归神的造化<br/>
-◆十年之久，世界开始正视这当下最真实的黑暗 <br/>
+◆在中国，数量巨大的人群被中共政权活摘器官贩卖。其中包括法轮大法修炼者，社会公德之士和少数族裔群体。 十年之久，世界才正视这反人类罪行。杀戮持续至今。 <br/>
 </tr>
   <tr>
    <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
