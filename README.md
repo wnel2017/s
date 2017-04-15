@@ -3,9 +3,9 @@
 <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/shan1.jpg"/></td><br/>
   <tr>
    <td align=center>
-   ❤❤致我们心中的善❤❤<br/>
+❤❤致我们心中的善❤❤<br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c817056&from=wnel">请点击在线观看</a><br/>
- 如打开慢，缓冲稍等或刷新<br/>
+如打开慢，缓冲稍等或刷新<br/>
 </tr>
   <tr>
      <td align=left>
@@ -21,18 +21,18 @@
 ◆在中国，数量巨大的人群被中共政权活摘器官贩卖。其中包括法轮大法修炼者，社会公德之士和少数族裔群体。 十年之久，世界才正视这反人类罪行。杀戮持续至今。 <br/>
 </tr>
   <tr>
-   <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
+<tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
   </tr>
   <tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate6.jpg" /></td>
   </tr>
   <tr>
-   <td align=center>◆免费  ◆安全  ◆快速  ◆绿色  ◆高速视频<br/>
+<td align=center>◆免费  ◆安全  ◆快速  ◆绿色  ◆高速视频<br/>
        </td>
   </tr>
   <tr>
-   <td align=center>网门网址 https://git.io/ogate 收藏浏览器<br/>
+<td align=center>网门网址 https://git.io/ogate 收藏浏览器<br/>
 推荐谷歌或火狐浏览器<br/>
 国产浏览器会干扰访问<br/>
     </td>
