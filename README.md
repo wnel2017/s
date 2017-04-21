@@ -67,6 +67,12 @@
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E5%B9%B42.jpg" /></td>
    </tr>
   <tr>
+◆大卫战红魔◆唤醒良知，震撼心灵！<br/>
+   </tr>
+  <tr>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" /></td>
+   </tr>
+  <tr>
       <td align=center>
 ◆残忍超越纳粹 引发全球关注◆<br/>
    </tr>
