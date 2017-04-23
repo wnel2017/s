@@ -57,7 +57,10 @@
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">请点击在线观看</a> <br/>
    </tr>
   <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E5%B9%B4.JPG" /></td>
+      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E5%B9%B4.JPG" /></td>
+   </tr>
+  <tr>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E9%93%81%E8%AF%81%E5%A6%82%E5%B1%B1.jpg" /></td>
    </tr>
   <tr>
       <td align=center>
